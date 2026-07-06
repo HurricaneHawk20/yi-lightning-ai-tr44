@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://HurricaneHawk20.github.io/yi-lightning-ai-tr44/ ) |
  |---------------------|----------------------:|
 
 
