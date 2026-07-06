@@ -1,4 +1,4 @@
-# 
+# Turbo Yi-Lightning extensões. Com suporte multimodal e treinamento de modelos personalizados — otimizado para máximo desempenho e eficiência.
 
 
 
